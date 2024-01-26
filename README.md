@@ -1,1 +1,1 @@
-# 2024_BSIT-3B_BiteandBrews_GlennMaurenPayanay
+# 2024_BSIT-3B_BiteAndBrews_GlennMaurenPayanay
